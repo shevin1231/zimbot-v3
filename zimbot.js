@@ -7,9 +7,9 @@
 //▮THIS SOFTWARE IS UNDER UZ COPYRIGHT
 //▮
 //▮REPORT ABUSE OF THIS SOFTWARE EMAIL US
-//▮reinhardtuna@mail.uk
-//▮WHATSAPP US : +44 7441 437150
-//▮YOUTUBE CHANNELL: https://youtube.com/c/DRIPSOFC
+//▮dulishehan89@email.com
+//▮WHATSAPP US : 94769747576
+//▮YOUTUBE CHANNELL: https://youtube.com/channel/UC6MKJhRIPSShZ5dBqp9spCw
 //▮
 //╰▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀
 //
@@ -21,8 +21,6 @@
 //┃THANKS TO DIKA ARDNT
 //┗━━━━━━━━━━━━━━━━━━━━━━━━━
 //
-
-
 
 
 
